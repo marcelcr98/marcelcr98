@@ -1,4 +1,4 @@
-### Hi, I'm Marcelo Armando 👋
+### 👋 Hi, I'm Marcelo Armando 
 ### 🚀 Stay Hungry, Stay Foolish 🚀
 
 <!--

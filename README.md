@@ -1,4 +1,4 @@
-### Stay Hungry, Stay Foolish 🙆 👋
+### 🚀 Stay Hungry, Stay Foolish  👋
 
 <!--
 **marcelcr98/marcelcr98** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
